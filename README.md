@@ -1,2 +1,2 @@
 # Super Teacher Suha
-online tutoring and Education services
+Online tutoring and Global Education services 
